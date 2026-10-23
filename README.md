@@ -1,4 +1,5 @@
-<p align="center"> <img width="755" height="755" alt="static-assets-upload8823643758464268374" src="https://github.com/user-attachments/assets/f0600150-f6ba-4bb0-9dbe-1d1873e81b34" /> </p>
+<p align="center"> <img width="300" height="300" alt="ece4f080-2e07-4187-8480-dfc43059b72d" src="https://github.com/user-attachments/assets/a3c9a926-ac7b-4b2c-b6ea-0fcece9d02ad" />
+ </p>
 
 <p align="center">hi!</p>
 <p align="center">c+h , please, cuddles make me joyful . </p> 
