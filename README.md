@@ -1,11 +1,12 @@
 <p align="center">hi!</p>
-<p align="center">c+h , please, cuddles make me joyful . travis rapid IRL , camryn rapid familial yume </p>
+<p align="center">c+h , please, cuddles make me joyful . </p> 
+<p align="center">travis rapid IRL , camryn rapid familial yume . idc about 'doubles' COME SAY HI ! :D </p>
 <p align="center">usually around with my travis pony, in the roblox area. i cuddle with the same people i cuddled before, but dont hesitate to call me to join you! whisper pls . fandom encouraged </p>
 
 <p align="center">dont cover me please! i will hide freely . also tell me if i need to move or js hide.</p>
-<p align="center">u can take heavy inspo from my skins . ask me if u want a tutorial for a speciffic part</p>
 
-<p align="center">u can take heavy inspo from my skins . ask me if u want a tutorial for a speciffic part</p>
+
+
 
 <!--
 **sharpfrostcherv/sharpfrostcherv** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
