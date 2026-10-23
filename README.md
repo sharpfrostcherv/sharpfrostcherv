@@ -1,4 +1,5 @@
-<img width="755" height="755" alt="static-assets-upload8823643758464268374" src="https://github.com/user-attachments/assets/f0600150-f6ba-4bb0-9dbe-1d1873e81b34" />
+<p align="center"> <img width="755" height="755" alt="static-assets-upload8823643758464268374" src="https://github.com/user-attachments/assets/f0600150-f6ba-4bb0-9dbe-1d1873e81b34" /> </p>
+
 <p align="center">hi!</p>
 <p align="center">c+h , please, cuddles make me joyful . </p> 
 <p align="center">travis rapid IRL , camryn rapid familial yume . idc about 'doubles' COME SAY HI ! :D </p>
