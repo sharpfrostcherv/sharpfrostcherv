@@ -3,7 +3,6 @@
 
 <p align="center">hi!</p>
 <p align="center">c+h , please, cuddles make me joyful . mentally unwell but im nice ^_^</p> 
-<p align="center">im travis rapid . camryn rapid familial yume . idc about 'doubles' COME SAY HI ! :D </p>
 <p align="center">usually around with my tmirb ponies, in the roblox area. i cuddle with the same people i cuddled before, but dont hesitate to call me to join you! whisper pls . fandom encouraged </p>
 
 <p align="center">dont cover me please! i will hide freely .</p>
