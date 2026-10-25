@@ -1,7 +1,7 @@
 <p align="center"> <img width="300" height="300" alt="ece4f080-2e07-4187-8480-dfc43059b72d" src="https://github.com/user-attachments/assets/a3c9a926-ac7b-4b2c-b6ea-0fcece9d02ad" />
  </p>
 
-<p align="center">hi!</p>
+<p align="center">hi! my name is travis</p>
 <p align="center">c+h , please, cuddles make me joyful . mentally unwell but im nice ^_^</p> 
 <p align="center">usually around with my tmirb ponies, in the roblox area. i cuddle with the same people i cuddled before, but dont hesitate to call me to join you! whisper pls . fandom encouraged </p>
 
