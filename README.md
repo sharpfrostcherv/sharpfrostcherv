@@ -5,7 +5,9 @@
 <p align="center">c+h , please, cuddles make me joyful . mentally unwell but im nice ^_^</p> 
 <p align="center">usually around with my tmirb ponies, in the roblox area. i cuddle with the same people i cuddled before, but dont hesitate to call me to join you! whisper pls . fandom encouraged </p>
 
-<p align="center">dont cover me please! i will hide freely .</p>
+
+<p align="center">i have trouble forming sentences and expressing thoughts, sorry for my late reply! ask me to rephrase if you dont get what i said</p>
+<p align="center">im chronically ill which makes me tired constantly, sorry if my reply appears dry or if it seems that i dont wanna talk, i dont mean that! </p>
 
 
 
