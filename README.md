@@ -10,7 +10,7 @@
 <p align="center">im chronically ill which makes me tired constantly, sorry if my reply appears dry or if it seems that i dont wanna talk, i dont mean that! </p>
 <p align="center">M, T, I, B</p>
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=900&color=7B0000&width=435&lines=.+A+HALL+OF+1300+MIRRORS;CONSUMES+MY+DECOMPOSING+CONSCIOUS;AS+MY+GUILTS+AND+PLEASURES+;INUNDATE+MY+RIBS+." alt="Typing SVG" /></a>
+<p align="center">  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=900&color=7B0000&center=true&lines=.+A+HALL+OF+1300+MIRRORS;CONSUMES+MY+DECOMPOSING+CONSCIOUS;AS+MY+GUILTS+AND+PLEASURES+;INUNDATE+MY+RIBS+." alt="Typing SVG" /></a>    </p>
 
 
 
