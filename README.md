@@ -1,9 +1,9 @@
-<p align="center"> <img width="3635" height="1669" alt="ece4f080-2e07-4187-8480-dfc43059b72d" src="https://f2.toyhou.se/file/f2-toyhou-se/images/130338733_96qi35phdGFuwWD.png" />
+<p align="center"> <img width="3635" height="1669" alt="ece4f080-2e07-4187-8480-dfc43059b72d" src="https://file.garden/ar_-q8q3aMY3ylL3/New%20board12%20(1).png" />
  </p>
 
-<p align="center">hi! my name is travis</p>
+<p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=600&color=6C0000&center=true&width=435&lines=IT+HASNT+EVEN+BEGUN;IT+BEGINS;YOU+DIDNT+LISTEN;WHY+DIDNT+YOU+LISTEN%3F;YOU+COULD+HAVE+PREVENTED+THIS;YOU+ASKED+FOR+THIS;YOU+CANT+STOP+THIS;ITS+TOO+LATE;ITS+HAPPENING;ITS+OVER" alt="Typing SVG" /></a> </p>
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
-<p align="center">usually around with my tmirb ponies, in the roblox area. i cuddle with the same people i cuddled before, but dont hesitate to call me to join you! whisper pls . fandom encouraged </p>
+<p align="center">dont be afraid to cuddle with me even if im with someone, my friend dont mind! . fandom encouraged </p>
 
 
 <p align="center">i have trouble forming sentences and expressing thoughts, sorry for my late reply! ask me to rephrase if you dont get what i said</p>
