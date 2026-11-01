@@ -5,7 +5,7 @@
 
 <p align="center" > ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⊹﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</p>
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
-<p align="center">dont be afraid to cuddle with me even if im with someone, my friend dont mind! . fandom encouraged </p>
+<p align="center">dont be afraid to cuddle with me even if im with someone, my friends dont mind! . fandom encouraged </p>
 
 
 <p align="center">i have trouble forming sentences and expressing thoughts, sorry for my late reply! ask me to rephrase if you dont get what i said</p>
