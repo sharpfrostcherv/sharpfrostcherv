@@ -4,6 +4,7 @@
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=600&color=6C0000&center=true&vCenter=true&width=435&height=22&lines=.+IT+HASNT+EVEN+BEGUN;IT+BEGINS;YOU+DIDNT+LISTEN;WHY+DIDNT+YOU+LISTEN%3F;YOU+COULD+HAVE+PREVENTED+THIS;YOU+ASKED+FOR+THIS;YOU+CANT+STOP+THIS;ITS+TOO+LATE;ITS+HAPPENING;ITS+OVER+." alt="Typing SVG" /></a> </p>
 
 <p align="center" > ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⊹﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</p>
+<p align="center">travis or ivan, no pref! please name me both or any.</p> 
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
 <p align="center">dont be afraid to cuddle with me even if im with someone, my friends dont mind! . fandom encouraged </p>
 
