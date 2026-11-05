@@ -9,9 +9,16 @@
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
 <p align="center">dont be afraid to cuddle with me even if im with someone, my friends dont mind! . fandom encouraged </p>
 
-<p align="center">i suffer from social anxiety disorder and extreme paranoia, PLEASE talk to me first. im scared ok</p>
+<div align="center">
+  <details>
+    <summary>info</summary>
+    <p> <p align="center">i suffer from social anxiety disorder and extreme paranoia, PLEASE talk to me first. im scared ok</p>
 <p align="center">i have trouble forming sentences and expressing thoughts, sorry for my late reply! ask me to rephrase if you dont get what i said</p>
 <p align="center">im chronically ill which makes me tired constantly, sorry if my reply appears dry or if it seems that i dont wanna talk, i dont mean that! </p>
+  </p>
+  </details>
+</div>
+
 
 <p align="center"> pt's ivan on <a href="https://github.com/piddlesjet" target="_blank">@piddlesjet</a> & <a href="https://github.com/knox-event" target="_blank">@Knox-Event</a>
 <p align="center"> pt's camryn on <a href="https://github.com/Ponytowns-rewards" target="_blank">@Ponytowns-rewards</a>    </p>
