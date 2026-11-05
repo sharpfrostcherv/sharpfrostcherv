@@ -35,8 +35,8 @@
 <br>
 
 <p> <p align="center"> ᶻ 𝗓 𐰁 nominations </p>
+<p align="center"> pt's camryn on <a href="https://github.com/Ponytowns-rewards" target="_blank">@Ponytowns-rewards</a> & <a href="https://github.com/THE-TEMPIST" target="_blank">@THE-TEMPIST</a>  </p>
 <p align="center"> pt's ivan on <a href="https://github.com/piddlesjet" target="_blank">@piddlesjet</a> & <a href="https://github.com/knox-event" target="_blank">@Knox-Event</a>
-<p align="center"> pt's camryn on <a href="https://github.com/Ponytowns-rewards" target="_blank">@Ponytowns-rewards</a>    </p>
 <p align="center"> pt's travis on <a href="https://github.com/daggerstruckmage" target="_blank">@daggerstruckmage</a>    </p>
 <p align="center"> pt's booker on <a href="https://github.com/pt-everypony" target="_blank">@pt-everypony</a>    </p>
 
