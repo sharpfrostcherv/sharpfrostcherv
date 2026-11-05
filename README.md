@@ -9,6 +9,8 @@
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
 <p align="center">dont be afraid to cuddle with me even if im with someone, my friends dont mind! . fandom encouraged </p>
 
+<br> 
+
 <div align="center">
   <details>
     <summary>info ⸝⸝</summary>
@@ -30,6 +32,7 @@
   </details>
 </div>
 
+<br>
 
 <p> <p align="center"> ᶻ 𝗓 𐰁 nominations </p>
 <p align="center"> pt's ivan on <a href="https://github.com/piddlesjet" target="_blank">@piddlesjet</a> & <a href="https://github.com/knox-event" target="_blank">@Knox-Event</a>
