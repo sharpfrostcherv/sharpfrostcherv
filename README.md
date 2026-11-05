@@ -4,14 +4,14 @@
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=600&color=6C0000&center=true&vCenter=true&width=435&height=22&lines=.+IT+HASNT+EVEN+BEGUN;IT+BEGINS;YOU+DIDNT+LISTEN;WHY+DIDNT+YOU+LISTEN%3F;YOU+COULD+HAVE+PREVENTED+THIS;YOU+ASKED+FOR+THIS;YOU+CANT+STOP+THIS;ITS+TOO+LATE;ITS+HAPPENING;ITS+OVER+." alt="Typing SVG" /></a> </p>
 
 <p align="center" > ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⊹﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</p>
-<p align="center"> <a href="https://travis.atabook.org/" target="_blank">ata</a>    </p>
+<p align="center"> <a href="https://travis.atabook.org/" target="_blank"> ata</a>    </p>
 <p align="center">travis or ivan, no pref! please call me both or any.</p> 
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
 <p align="center">dont be afraid to cuddle with me even if im with someone, my friends dont mind! . fandom encouraged </p>
 
 <div align="center">
   <details>
-    <summary>info</summary>
+    <summary>info ⸝⸝</summary>
     <p> <p align="center">i suffer from social anxiety disorder and extreme paranoia, PLEASE talk to me first. im scared ok</p>
 <p align="center">i have trouble forming sentences and expressing thoughts, sorry for my late reply! ask me to rephrase if you dont get what i said</p>
 <p align="center">im chronically ill which makes me tired constantly, sorry if my reply appears dry or if it seems that i dont wanna talk, i dont mean that! </p>
@@ -19,7 +19,19 @@
   </details>
 </div>
 
+<p align="center" > ⊹﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⊹</p>
 
+<div align="center">
+  <details>
+    <summary>dni ⸝⸝</summary>
+    <p> <p align="center"> basic dni criteria logically, pro/darkshippers </p>
+   <p> <p align="center"> rustrav, camtrav, canon ivandrew shippers </p>
+   <p> <p align="center"> bad things fans IWEC </p>
+  </details>
+</div>
+
+
+<p> <p align="center"> ᶻ 𝗓 𐰁 nominations </p>
 <p align="center"> pt's ivan on <a href="https://github.com/piddlesjet" target="_blank">@piddlesjet</a> & <a href="https://github.com/knox-event" target="_blank">@Knox-Event</a>
 <p align="center"> pt's camryn on <a href="https://github.com/Ponytowns-rewards" target="_blank">@Ponytowns-rewards</a>    </p>
 <p align="center"> pt's travis on <a href="https://github.com/daggerstruckmage" target="_blank">@daggerstruckmage</a>    </p>
