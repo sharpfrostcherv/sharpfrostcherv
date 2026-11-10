@@ -1,4 +1,4 @@
-<p align="center"> <img width="3635" height="1669" alt="ece4f080-2e07-4187-8480-dfc43059b72d" src="https://file.garden/ar_-q8q3aMY3ylL3/New%20board12%20(1).png" />
+<p align="center"> <img width="3635" height="1669" alt="ece4f080-2e07-4187-8480-dfc43059b72d" src="https://github.com/user-attachments/assets/9aa28745-f5e9-48c9-9d2f-c2df85243d20" />
  </p>
 
 <p align="center"> <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&duration=3500&pause=600&color=6C0000&center=true&vCenter=true&width=435&height=22&lines=.+IT+HASNT+EVEN+BEGUN;IT+BEGINS;YOU+DIDNT+LISTEN;WHY+DIDNT+YOU+LISTEN%3F;YOU+COULD+HAVE+PREVENTED+THIS;YOU+ASKED+FOR+THIS;YOU+CANT+STOP+THIS;ITS+TOO+LATE;ITS+HAPPENING;ITS+OVER+." alt="Typing SVG" /></a> </p>
