@@ -5,7 +5,7 @@
 
 <p align="center" > ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌⊹﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌</p>
 <p align="center"> <a href="https://travis.atabook.org/" target="_blank"> ata</a>    </p>
-<p align="center">travis or ivan, no pref! please call me both or any.</p> 
+<p align="center">travis or ivan, no pref! please call me both or any. 16+</p> 
 <p align="center">c+h , please, heavy cudcomf . mentally unwell but im nice ^_^</p> 
 <p align="center">dont be afraid to cuddle with me even if im with someone, my friends dont mind! . fandom encouraged </p>
 
